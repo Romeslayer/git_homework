@@ -5,5 +5,3 @@ For me to be successful at Turing I will need to:
 
 
 I had a patient last week that really gassed me up and even though our relationship was basically strangers. The kind words and energy he radiated gave me a new perspective on my life, goals and prospects on the future.
-
-TJ has been a tremendous help in my breakout rooms, I learned a lot of valuable info
